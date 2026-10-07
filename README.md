@@ -2,7 +2,7 @@
 ### Mechanical & Testing Engineer | Test Bench Design • Pneumatics • CAD (SolidWorks)
 
 📍 **Location:** Germany  
-📫 **Connect:** [LinkedIn](https://linkedin.com/in/your-profile-url) | [Email](mailto:your-email@example.com)
+📫 **Connect:** [LinkedIn](https://www.linkedin.com/in/sachinsalaskar10/) | [Email](mailto:sachin.salaskar@rwth-aachen.de)
 
 ---
 
